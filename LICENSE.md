@@ -1,4 +1,4 @@
-# 
+# Quicken for PC | Quicken for Windows rare Addon: cloud-sync & budgeting is the best Quicken for PC | Quicken for Windows addon, featuring cloud-sync and budgeting. Powerful,
 
 
 
